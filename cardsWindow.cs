@@ -4,16 +4,20 @@ hgf
 hgfh
 ghgfhhgf
 
-hgfh
-ghgfhhgfh
-ghgfhhgf
+ghgfhhgfgfdfd
+gfg
+gfgvc
 
-hgf
-ghgfhhgf
-gf
+doq
+s
+q
 
-g
-f
+doqd
+
+
+xcd
+forggfe
+returne
 ghgfhhgff
 
 hg
@@ -29,46 +33,19 @@ h
 ghgfhhgfgh
 gf?
 ghgfhhgf
-п
-па
-пап
-а
-паа
-пап
-а
-п
-а
-па
+ghgfhhgf
+o
+q
+abstractx
+bvbvbnbv
 
-папп
-а
-пап
-а
-паппап
-а
-п
-а
-пав
-паав
-павп
-ав
-п
-ав
-павва
-павп
-ав
-павп
-авпва
-паввапав
-паввапавп
-ва
-па
-п
-ав
-паввапавпв
-вава
+nbvnbvnbvnn
+bvvnnbvn
 
-ва
+hgfh
+forggf
+fg
+hgfh
 ghgfhhgfgfd
 
 forg
