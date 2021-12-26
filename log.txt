@@ -1,0 +1,1 @@
+{"message":"Timeout (1000ms) exceeded. Killing process git.","source":"MetadataCommand.ExtractMetadata","date_time":"2021-12-26T18:00:58.3125791Z","message_severity":"warning","correlation_id":"5393A05F-00B0-4D15-8704-8A33B16F2DBF.1.1.25"}
